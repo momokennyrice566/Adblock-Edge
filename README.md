@@ -211,4 +211,4 @@ AdBlock for Edge is the full free version with all features and updates included
 Take control of your online experience today with AdBlock for Edge! Download now and enjoy an ad-free browsing journey!
 
 ---
-**Last updated:** 2026-10-17 16:14:23 UTC
+**Last updated:** 2026-10-17 19:08:08 UTC
